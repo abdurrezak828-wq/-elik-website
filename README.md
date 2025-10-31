@@ -1,1 +1,1 @@
-# -elik-website
+# -elik-website HERKEZ RÜTBESİNİ BİLECEK 
